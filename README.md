@@ -1,2 +1,13 @@
-# c3lt4b3t
-Celtabet Kazancın Tek Adresi 2025tl Ödüllü
+<h1>Celtabet</h1>
+<p>Celtabet ile kazançlı oyunların ve yüksek oranların keyfini çıkarın!</p>
+<a href="https://t2m.io/2284401" title="Celtabet Güncel Giriş">Celtabet Güncel Giriş</a>
+
+<a href="https://t2m.io/2284401">
+    <img src="https://i.ibb.co/gtF7ptH/photo-2025-01-13-14-27-16.jpg" alt="Celtabet Görseli" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
+</a>
+
+<h2><a href="https://t2m.io/2284401">Celtabet Giriş İçin Tıklayınız ✅</a></h2>
+<p>Güvenilir ve avantajlı bahis sitesi Celtabet ile şansınızı deneyin ve kazanın!</p>
+
+<h3>Celtabet - Yüksek Oranlar - Büyük Kazançlar</h3>
+<p>Hemen giriş yapın ve eğlence dolu dünyaya katılın!</p>
